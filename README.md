@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **gp352443@gmail.com**
 
-- ⚡ Fun fact **I love travel because travel is heal our self**
+- ⚡ Fun fact **I love travel because travel is heal our self** 
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
