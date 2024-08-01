@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **Angular**
 
-- 📫 How to reach me **gp352443@gmail.com**
+- 📫 How to reach me **gprakash2109@gmail.com**
 
 - ⚡ Fun fact **I love travel because travel is heal our self** 
 
